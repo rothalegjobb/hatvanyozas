@@ -1,0 +1,2 @@
+# hatvanyozas
+ adott hatvanyra emeles
